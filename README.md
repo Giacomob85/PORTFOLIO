@@ -1,2 +1,2 @@
-My-website
-Presentation of myself, portfolio and experiences.
+IL MIO PORTFOLIO
+PRESENTAZIONE ED ESPERIENZE
